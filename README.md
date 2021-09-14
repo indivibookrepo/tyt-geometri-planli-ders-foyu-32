@@ -1,0 +1,1 @@
+# tyt-geometri-planli-ders-foyu-32
